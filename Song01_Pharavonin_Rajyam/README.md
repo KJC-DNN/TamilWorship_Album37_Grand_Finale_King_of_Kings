@@ -1,8 +1,9 @@
 # பார்வோனின் ராஜ்யம் | Pharaoh’s Kingdom – The Red Sea Victory | Album 37 Grand Finale Song 1
 
-Study Note
+## Study Note
 This opening song powerfully recounts God’s mighty deliverance of Israel from Pharaoh’s kingdom through the ten plagues and the parting of the Red Sea. It sets the tone for the entire album by showing that no earthly kingdom, no matter how powerful, can stand against the Lord.
-Prayer
+
+## Prayer
 English:
 Lord Jesus, just as You broke Pharaoh’s kingdom and delivered Your people, break every bondage in our lives. You are greater than every power and kingdom. Lead us to victory and freedom. Hallelujah!
 Tamil:
